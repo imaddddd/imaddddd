@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @imaddddd
-- 👀 I’m interested in gaming coding and music
+- 👀 I’m interested in gaming coding anime and music
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me ig:imad_otsutsuki
